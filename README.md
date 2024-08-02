@@ -1,1 +1,1 @@
-### 👋 Hey! I am Kamal.
+### I am Kamal Johnson.
